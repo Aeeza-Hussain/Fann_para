@@ -7,4 +7,6 @@ We offer a variety of artistic resin pieces and customized gifts for birthdays, 
 We are committed to providing quality products, reliable home delivery, and a smooth, secure, and enjoyable online shopping experience. As a proud Pakistani brand, we aim to promote creativity, support local talent, and showcase the beauty of handmade craftsmanship.
 
 Our vision is to become a trusted name in Pakistan for resin art and personalized gifting by offering unique creations that bring joy to people's lives. We believe that every gift creates a memory, and every special moment deserves something truly meaningful.
+Our vision is to become a trusted name in Pakistan for resin art and personalized gifting by offering unique creations that bring joy to people's lives. We believe that every gift creates a memory, and every special moment deserves something truly meaningful.
+
 
