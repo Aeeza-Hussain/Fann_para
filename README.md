@@ -1,3 +1,3 @@
-# Fann_para
-This is a website where we sell resin art and gifts and provide home secure home delivery.
-i love my ocuntry and i am a pakistani.
+Welcome to our online store, a Pakistani brand dedicated to beautiful resin art, handmade gifts, and unique personalized creations. Our goal is to bring creativity, happiness, and unforgettable memories to every customer through thoughtfully designed products made with love, care, and attention to detail. We believe that gifts are more than just objects; they are a way to express emotions, celebrate relationships, and preserve the special moments that make life meaningful.
+
+Our store was created with a passion for artistic expression and the beauty of handmade craftsmanship. We offer a variety of creative resin art pieces and personalized gifts suitable for birthdays, anniversaries, weddings, engagements, and other special occasions. Whether you are looking for a meaningful present for a loved one or a beautiful decorative piece for your home, our collection is designed to help you find something unique and memorable.
